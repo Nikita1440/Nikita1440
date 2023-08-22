@@ -1,5 +1,5 @@
 
-👋 Hello there! I'm a passionate B.Tech graduate in Biotechnology with a fervor for data-driven exploration and innovation. 🧬📊
+👋 Hello there! I'm a passionate  graduate in Biotechnology with a  fervour data-driven exploration and innovation. 🧬📊
 
 🧠 My journey in the world of technology began with a strong foundation in biotechnology, where I gained insights into the intricate workings of life at a molecular level. As I delved deeper, I discovered a profound interest in harnessing the power of data to uncover hidden patterns and drive meaningful insights. 🌐🔍
 
